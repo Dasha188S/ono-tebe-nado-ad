@@ -1,3 +1,3 @@
 # Оно тебе надо
 
-https://github.com/DashaSSSS18/ono-tebe-nado-ad
+https://github.com/Dasha188S/ono-tebe-nado-ad
